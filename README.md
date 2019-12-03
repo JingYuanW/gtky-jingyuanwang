@@ -1,11 +1,11 @@
-My name is Jing Yuan Wang
+My name is Jianping chen
 
 I'm 15 years old.
 
 I was born in China
 
-My favorite color is Blue/Black
+My favorite color is orange
 
-My favorite 3 artist are... umm... I don't have any :P
+My favorite 3 artist are Beethoven, Van Gogh and Da Vinci
 
-On the weekends I like to stay home and do what ever I enjoy
+On the weekends I like to stay home and Do what I like to do
